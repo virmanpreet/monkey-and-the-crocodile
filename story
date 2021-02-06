@@ -8,4 +8,4 @@ she felt greedy and wanted to eat the monkey
 she asked him to invite the monkey for lunch
 at their place where she would kill the monkey and eat his heart
 the crocodile went to invite the monkey and invited the monkey
-to his home . monkey agreed
+to his home . monkey agreed to come
